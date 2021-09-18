@@ -1,0 +1,1 @@
+I dont really know what to put in the readme yet, other than I did the thing. As we make more documents and I look at the readmes more Im sure I will get better throughout the course.
